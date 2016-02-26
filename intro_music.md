@@ -1,0 +1,2 @@
+Appropriate Shannon Intro Music: LCD Soundsystem's "Home"
+It is happy and you can dance to it, or you can sit and drink coffee to it, or be sad to it. Also it's a long song, with a lot of variety, so it gives me a lot of options, and doesn't seem to tied to any articular season.
